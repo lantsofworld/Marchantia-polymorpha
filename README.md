@@ -10,7 +10,7 @@ From the lower layer of cells, two types of rhizoids depart - simple and reed. T
 
 ![Branching](203a04260a48fd9_1.jpg)
 
-The march is diverse - the plant is dioecious. On some specimens, by the summer, peculiar outgrowths develop in the form of a multi-blade disk sitting on a leg. This formation is called the male stand. Other specimens of the marschania have outgrowths, the legs of which are crowned with plates that look like multi-ray stars. These are female coasters (see figure of the textbook, p. 51).
+The march is diverse - the plant is dioecious. On some specimens, by the summer, peculiar outgrowths develop in the form of a multi-blade disk sitting on a leg. This formation is called the male stand. Other specimens of the marschania have outgrowths, the legs of which are crowned with plates that look like multi-ray stars. These are female coasters.
 
 Both female and male supports are modified branches of the thallus, which in the course of evolution have adapted to form antheridia and archegonium on them.
 
